@@ -7,7 +7,7 @@ Also I reference a YouTube video several times, but I haven't done that yet. So 
 
 
 
-I know that times are hard right now, but I'm running out of fuel for my Starborne Premium. To be clear: THIS IS FREE. ABSOLUTELY. 100%. However, if you feel that #1 you absolutely positively have enough for yourself and loved ones, #2 found this script to be useful and #3 want to support a college student's addiction to video games, I would appreciate even one or two dollars to show your support. If you feel so inclined, here is my PayPal link: paypal.me/JMoore11235 
+I know that times are hard right now, but I'm running out of fuel for my Starborne Premium. To be clear: THIS IS FREE. ABSOLUTELY. 100%. However, if you feel that #1 you absolutely positively have enough for yourself and loved ones, #2 found this script to be useful and #3 want to support a college student's addiction to video games, I would appreciate even one or two dollars to show your support. If you feel so inclined, here is my PayPal link: [paypal.me/JMoore11235](paypal.me/JMoore11235) 
 
 Donations are greatly appreciated! 
 
